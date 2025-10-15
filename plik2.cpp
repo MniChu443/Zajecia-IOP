@@ -1,5 +1,17 @@
 sdsadsadsa
-dasdasfasd
-asdasdasd
-Ala ma kota a kot
 ma ale
+g
+
+jhgh
+fh
+fgh
+fg
+hgf
+d
+fgs
+thdh
+fg
+s
+gs
+dgsd
+
