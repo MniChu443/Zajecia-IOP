@@ -8,3 +8,4 @@ gj
 h
 jh
 jh
+ala ma kota 
