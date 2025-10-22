@@ -14,4 +14,4 @@ fg
 s
 gs
 dgsd
-
+modyfikajca aaa 
