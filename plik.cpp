@@ -1,11 +1,8 @@
-sdsadsadsa:
+sdsadsadsa
+dasdasfasd
+asdasdas
+da
+dadada
+d
 adfsdgfdfdfg
 fdgd
-dad
-sdghg
-h
-gj
-h
-jh
-jh
-ala ma kota 
